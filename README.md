@@ -8,7 +8,7 @@ Ouder worden is een natuurlijk proces waar iedereen mee te maken krijgt. Het is 
 
 ## Bronnen en verdere lezing 📚
 
-We werken eraan om een van de beste bronnen te worden over dit onderwerp [Gezond Ouder Worden](https://gezondouderworden.net). Deze website biedt uitgebreide informatie, artikelen en tips over verschillende aspecten van gezond ouder worden. 
+We werken eraan om een van de beste bronnen te worden over dit onderwerp [www.gezondouderworden.net](https://gezondouderworden.net). Deze website biedt uitgebreide informatie, artikelen en tips over verschillende aspecten van gezond ouder worden. 
 
 ## Bijdragen 💡
 
